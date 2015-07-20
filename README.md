@@ -1,1 +1,0 @@
-# thinkother.github.io
